@@ -8,8 +8,8 @@ Date of Finishing: 2022/07/05
 
 - Postive Points
   - Fashion Store Scene
-  - The part when they are parodying a Final-Fantasy Classic JRPG
-      (But It's not from the main protagonist prespective)
+      - The part when they are parodying a Final-Fantasy Classic JRPG
+          (But It's not from the main protagonist prespective)
   - World Building
   - Cool Animations for a "PWYW" Game
 - Neutral Points

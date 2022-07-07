@@ -16,20 +16,20 @@ tags: on/anime, review/anime
     - Despite sometimes Yuuki have to much focus for be "Support" character.
       - And I don't have problem if A Support character has protagonism, the issue is when is just because is a ~~man~~ typical projection character peronalitless
 - Negative Points:
-  - Early Episode 1 is so Yuuki-focused (That was my initial dropping)
-  - Kokkoro fall in the [Empty Nest](https://tvtropes.org/pmwiki/pmwiki.php/Main/EmptyNest "/pmwiki/pmwiki.php/Main/EmptyNest") & [Undying Loyalty](https://tvtropes.org/pmwiki/pmwiki.php/Main/UndyingLoyalty "/pmwiki/pmwiki.php/Main/UndyingLoyalty") tropes
-  - I almost forgot about the
+    - Early Episode 1 is so Yuuki-focused (That was my initial dropping)
+    - Kokkoro fall in the [Empty Nest](https://tvtropes.org/pmwiki/pmwiki.php/Main/EmptyNest "/pmwiki/pmwiki.php/Main/EmptyNest") & [Undying Loyalty](https://tvtropes.org/pmwiki/pmwiki.php/Main/UndyingLoyalty "/pmwiki/pmwiki.php/Main/UndyingLoyalty") tropes
+    - I almost forgot about the
 
 ## Season 2
 
 ### Short Opinion (Season 2)
 
 - Positive Points
-  - Takes the TokenEvilTeammate more seriously
-    - OH, HOLY COW.
-  - Episode 4: I find lovely the interaction with the humanoid shadow.
+    - Takes the TokenEvilTeammate more seriously
+        - OH, HOLY COW.
+    - Episode 4: I find lovely the interaction with the humanoid shadow.
 - Negative Points
-  - I would say None
+    - I would say None
 
 ## Overall Opinion (Season 2)
 
