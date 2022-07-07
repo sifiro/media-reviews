@@ -1,8 +1,9 @@
 ---
 tags: on/anime, review/anime
 ---
-## Akebi's Sailor Uniform
+# Akebi's Sailor Uniform
+
 - Positive Points
-    - It's \
+  - It's \
 - Negative Points
-    - The inflatable balloon scene was a bit too predective.
+  - The inflatable balloon scene was a bit too predective.
